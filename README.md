@@ -1,1 +1,0 @@
-# Trainee_Kovtko
